@@ -4,3 +4,7 @@ Sobre Nós
 - 🌱 Estamos aprendendo sobre programação.
 - 📫 Pode nos encontrar pelo instagram! @_pvd.jao._ e @_pvd.n4ty_
 - 
+:kite:
+:crescent_moon:
+:cat:
+:hamster:
