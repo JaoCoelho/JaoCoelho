@@ -3,8 +3,8 @@ Sobre Nós
 - 👀 Somos interessados em Jogos de PC e gatinhos.
 - 🌱 Estamos aprendendo sobre programação com a prof Margarete.
 - 📫 Pode nos encontrar pelo instagram!  @_pvd.jao._ e @_pvd.n4ty_
-- :kite:
-- :crescent_moon:
-- :cat:
-- :hamster: 
+- 🪁 Eu (Naty) gosto de paozinho de batata
+- 🌙 Eu (Joâo) gosto de paozinho com goiabinha
+- 🐱<3
+- 🐹 🪕
 
